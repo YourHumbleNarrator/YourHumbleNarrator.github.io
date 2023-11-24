@@ -1,5 +1,5 @@
 
-## **Chanterelle**
+## **Chanter**
 ![Chant](kurka.jpg)
 
 The common name of several species of fungi. They are among the most popular of wild edible mushrooms. They are orange, yellow or white, meaty and funnel-shaped. On the lower surface, underneath the smooth cap, most species have rounded, forked folds that run almost all the way down the stipe, which tapers down seamlessly from the cap. Many species emit a fruity aroma, reminiscent of apricots, and often have a mildly peppery taste. The name chanterelle originates from the Greek kantharos meaning "tankard" or "cup", a reference to their general shape.
